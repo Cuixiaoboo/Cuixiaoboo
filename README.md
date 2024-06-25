@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Cuixiaoboo
+- 👋 Hi, I’m @Cuixiaobo
 - 👀 I’m interested in anything
 - 🌱 I’m currently learning anything
 - 📫 How to reach me, emmm...
